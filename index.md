@@ -1,12 +1,12 @@
-# This is the Title
+# Pappur Family Tree
 
-There is some text.
+This is some into text. We will fleash this out later.
 
-## This is the first section
+## Pappur Family
 
-Which has some text too.
+The matriarch of the Pappur family is Ammayya.
 
 Here is a picture of Ammayya:
 
 
-![Picture of Raju](ammayya.png)
+![Picture of Ammayya](ammayya.png)
