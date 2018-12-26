@@ -1,6 +1,6 @@
 # Pappur Family Tree
 
-This is some into text. We will fleash this out later.
+This is some into text. We will flesh this out later.
 
 ## Pappur Family
 
