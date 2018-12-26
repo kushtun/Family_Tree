@@ -6,7 +6,7 @@ There is some text.
 
 Which has some text too.
 
-Here is a picture:
+Here is a picture of Ammayya:
 
 
-![Picture of Raju](raju.JPG)
+![Picture of Raju](ammayya.png)
