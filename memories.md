@@ -1,4 +1,4 @@
-i# Memories of Ammayya
+# Memories of Ammayya
 
 From Shiv:
 
