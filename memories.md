@@ -2,8 +2,15 @@
 
 From Shiv:
 
-> By all accounts, she was a young beautiful highly sensitive girl with lots of aspirations when she was attending school. Life treated  her harshly even before she became an adult, which also continued to haunt the rest of her short life. She did have many happy occasions when she had her wonderful six children whom she loved with all her being and was responded in kind by them. Also she was thrilled to look after her first grandchild  Supriya for a year in India with devoted help from Thara. Also her happiest times were when she spent a year in Winnipeg with Supriya.
-I have been a constant companion to her , particularly when our father was away in England. Even at my age of 7, I remember going with her to many Hindi movies  of famous actors like Raj Kapoor, Meena Kumari, Pankaj Mallick and so on. She was adored by her father and she had excellent relationships with two life long friends Baby and Venku Bai. They met often in each other’s houses, even though it involved walking a mile each way. She had good relationship with her sister inlaw  and her daughter Komala who lives in Bangalore. She kept here tortured soul mostly to herself as she was a people’s person. When she was in Khatmandu, Nepal and my father gave a dinner party to many Nepalese dignitaries who also looked forward to lots of free wine. My mother made south Indian rasam which was so good no one drank wine. A little later in life, she succumbed to Diabetes which also led to kidney failure. I know that if I were a movie maker, the  movie about her would be an Oscar winner.
+> By all accounts, she was a young beautiful highly sensitive girl with lots of aspirations when she was attending school.
+>
+> Life treated  her harshly even before she became an adult, which also continued to haunt the rest of her short life. She did have many happy occasions when she had her wonderful six children whom she loved with all her being and was responded in kind by them. 
+>Also she was thrilled to look after her first grandchild  Supriya for a year in India with devoted help from Thara. Also her happiest times were when she spent a year in Winnipeg with Supriya.
+> I have been a constant companion to her , particularly when our father was away in England. Even at my age of 7, I remember going with her to many Hindi movies  of famous actors like Raj Kapoor, Meena Kumari, Pankaj Mallick and so on. She was adored by her father and she had excellent relationships with two life long friends Baby and Venku Bai. They met often in each other’s houses, even though it involved walking a mile each way. 
+>
+>She had good relationship with her sister inlaw  and her daughter Komala who lives in Bangalore. She kept her tortured soul mostly to herself as she was a people’s person. When she was in Khatmandu, Nepal and my father gave a dinner party to many Nepalese dignitaries who also looked forward to lots of free wine. My mother made south Indian rasam which was so good no one drank wine. A little later in life, she succumbed to Diabetes which also led to kidney failure. 
+>
+>I know that if I were a movie maker, the movie about her would be an Oscar winner.
 
 
 From Papu:
