@@ -14,4 +14,6 @@ Photos go here.
 
 - [Ammayya and Mama](ammayya_and_mama.md)
 - [Ammayya's and Mama's children](ammaya_mama_children.md)
-- [Memories of Ammayya](memories.md)
+
+
+# [Memories of Ammayya](memories.md)
