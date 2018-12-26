@@ -16,22 +16,22 @@ From Shiv:
 
 From Papu:
 
-> There is not much to say a mother who raised 6 kids of her own and her siblings in a short span of her life despite she had personal, personal health and financial problems she faced from both side of the family.
+> There is not much to say a mother who raised 6 kids of her own and her siblings in a short span of her life despite the fact that she had personal, health, and financial problems she faced from both sides of the family. Although she went through bad health and a difficult personal life, she ensured that her kids grew in a natural environment. 
 >
->Although she went thro bad health and not so-good personal life, she ensured to see her kids grow in a natural environment. 
+>She had the charisma to make good friends which kept her occupied, and took us every year to see Dussera and set up some strict guidelines. She attended the yearly Ganesha festival in a grand manner, and she was well known in the community . 
 >
->She had charisma to make good friends which kept her occupied , took us every year to see Dussera and set up some strict guidelines. She did yearly Ganesha festival in a grand manner and she was well known in the community . 
->
->She loved Mama irrespective of his other problems and Mama also showed his love during last years of her life taking her around Nepal, UK , Canada and USA.
+>She loved Mama irrespective of his other problems, and Mama also showed his love during last years of her life taking her around Nepal, UK , Canada and USA.
 >
 >Also I have to thank Thara who took the responsibility to raise attest three of us when Ammaya was sick. 
->Also thank all of you to sticking to Amaya’s  principles . She said once every kid of her are equal. She said this when Indian parents always looking at favouring their sons.
+>And thanks to all of you for sticking to Amaya’s  principles. She said once, all her children were equal. She said this when Indian parents always looking at favouring their sons.
 >
 >I have gone with mother when I was 8 year old to all places in Karnataka with Bhava and Sharada .
 >
->Even today Mama and Ammaya inspires me as I spend 20  plus years of my life  with her and Mana.
->I just want to think of good ones she had  in her life time.
+>Even today Mama and Ammaya inspires me as I spend 20 plus years of my life with her and Mana.
+>I just want to think of good years she had in her lifetime.
 >
 >That’s all I can say, the rest is well known of her charisma, and helping people when they were in need.
+
+
 
 
