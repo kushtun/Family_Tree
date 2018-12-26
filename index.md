@@ -2,11 +2,16 @@
 
 This is some into text. We will flesh this out later.
 
-## Pappur Family
+## Dedication
 
-The matriarch of the Pappur family is Ammayya.
-
-Here is a picture of Ammayya:
-
+This site is dedicated to the memory of Ammayya Saroja.
 
 ![Picture of Ammayya](ammayya.png)
+
+It is intended for the benefit of her great-grandchildren: Kieran, Kyla, Aria, Yash, Violet Mae and Rohin.
+
+Photos go here.
+
+[Ammayya and Mama]()
+[Ammayya's and Mama's children]()
+[Memories of Ammayya]()
