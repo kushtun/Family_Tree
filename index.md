@@ -12,8 +12,9 @@ It is intended for the benefit of her great-grandchildren: Kieran, Kyla, Aria, Y
 
 Photos go here.
 
+## Family Pages
 - [Ammayya and Mama](ammayya_and_mama.md)
 - [Ammayya's and Mama's children](ammaya_mama_children.md)
 
 
-# [Memories of Ammayya](memories.md)
+## [Memories of Ammayya](memories.md)
