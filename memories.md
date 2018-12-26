@@ -27,7 +27,7 @@ From Papu:
 >
 >I have gone with mother when I was 8 year old to all places in Karnataka with Bhava and Sharada .
 >
->Even today Mama and Ammaya inspires me as I spend 20 plus years of my life with her and Mana.
+>Even today Ammaya and Mama inspire me, as I spent 20-plus years of my life with her and Mama.
 >I just want to think of good years she had in her lifetime.
 >
 >That’s all I can say, the rest is well known of her charisma, and helping people when they were in need.
