@@ -6,3 +6,7 @@ There is some text.
 
 Which has some text too.
 
+Here is a picture:
+
+
+![Picture of Raju](raju.JPG)
