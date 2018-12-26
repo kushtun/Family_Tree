@@ -1,9 +1,0 @@
-# Title One
-
-Here is some text.
-
-
-
-## Title two
-
-The next section.
