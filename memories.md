@@ -32,6 +32,32 @@ From Papu:
 >
 >That’s all I can say, the rest is well known of her charisma, and helping people when they were in need.
 
+From: Thara 
+>
+>We all did massage to her legs, 1/2 an hr to 1hr.( that was too much for me )
+>She was very smart in recognizing and quick in responding to emergencies, such as when Appa had a heart attack, she immediately called ambulance.( I still remember the day it happened)
+> I also remember when she broke her leg in the bathroom. We were in the house at Old Veterinary Hospital Road. The bathroom was outside, and she may have been dizzy due to having daibetes, but one morning around 7.30am,   she missed her step in the bathroom.
+>
+>One amazing thing, Ammaya kept in touch with childhood friends till her last days. Of course we also enjoyed their company. The greatest thing, she loved her parents also very much & helped them when they needed. Ammaya never got angry at anytime. I do not remember, during my 29 years of staying with her under the same roof, she did not complain not even once. 
 
+From: Papi 
+>
+>It gives me immense pleasure to write a few words on our Mother, a guide and a mentor.  I was also very close like all other siblings, a great lady with a soft heart and great mind and would do anything to see her children grow up well.  Often she used to teach me my school lessons and many times accompanied me to school specially on the valedictory day where I was receiving prizes for various competitions. She was a proud mother and her eyes expressed satisfaction and happiness of seeing her daughter getting prizes at school.
+>I used to be a right hand to her helping in her daily chores and specially after she fell sick.  I have also had my share of massaging her leg.  She used to express her happiness and pleasure when I used to wear her jewelry. 
+>I am a theist like her who believed in the existence of God.   
+>When one day, after my marriage was fixed, I was crying with tears in my eyes on the very thought that parents had to spend a lot of money on my marriage.  She gave me courage and convinced me that everything will be taken care off.
+>
+> With all the bad health, she was the same affectionate and loved mother.   She used to forget her pain saying that she had the best children.   Shiv Anna was her favorite and when he left for England tears rolled down her eyes for days.
+>She refused to send me to England because she wanted me to get married in India although father had made arrangements to stay with his friends family.
+>She was a great mother and what I am today , I attribute to her guidance.
+
+From: Sada
+>
+>It is a very long story compared to the others of Ammayya's children. I was very close to Ammaya, ask me what do I mean close , which is I used to accompany her to her friend Venkubaye while going from home and also  bring her back from her friend's house walking holding my cycle. 
+>Secondly many of friends used to come home and she would tell me bring Masala DOSA from Vidyarthi Bhavan in Gandhi Bazar. 
+>Thirdly, I used to accompany and sit with her in Varanada as she was waiting for mama to come home. 
+>Fourth, I used to massage her leg and shoulder always because she used to get pain. 
+>Fifth,  I was   doing shopping for her on my cycle. 
+>Supplying spare parts for state transport, I used to take care of her hospital expenses and one day she expired during that I was not near by in hospital, I took her body in my friends car to home , informed death to many friends and relatives and later she was cremated. I could not bear the cremation scene and cried. Father also did lot of things for mother by staying 24 hours with her in hospital. This is my real story with mother and I regret that I was studying and wasn't able to help when she broke her leg.  
 
 
